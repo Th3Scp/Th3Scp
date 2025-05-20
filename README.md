@@ -1,4 +1,4 @@
-<h1 align="left">hello lovely ❤️ , I'm th3scp</h1>
+<h1 align="left">Hi lovely ❤️ , I'm th3scp</h1>
 
 ###
 
